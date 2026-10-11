@@ -1,0 +1,2 @@
+# lichhoctq
+khong co gi
